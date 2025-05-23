@@ -1,0 +1,1 @@
+this mobile app is for making a better world which will lead do a rapid increase onthe economic infastricture by sharing your ideas based on electronics,waste management,renewable energy and other things that came the world a better place for everyone of us.thanks for reading article😍🥰🤩🥳😘😋
